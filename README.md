@@ -1,1 +1,1 @@
-Botnya dapat dilihat disini https://t.me/HYBRIDTLY_bot
+Botnya dapat dilihat disini [Downloader](https://t.me/medsosDownloader_bot)
